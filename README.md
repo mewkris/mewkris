@@ -3,6 +3,6 @@
 <p align="center"></p>
 <div align="center">
 
-[rentry w bf](https://rentry.co/gurire) ྀི [rentry](https://rentry.co/mewkris)
+[rentry♡](https://rentry.co/gurire) ྀི [rentry](https://rentry.co/mewkris)
 </div>
 <p align="center"> <img src="https://i.postimg.cc/tR2gM7ss/53_sin_titulo_20260311181718.png" alt="pika"/> <img src="https://i.postimg.cc/HWBLhjrc/52_sin_titulo_20260311181701.png" alt="my bf"/> <img src="https://i.postimg.cc/QN0MyVFV/53_sin_titulo_20260311181724.png" alt="norlax"/><br/></p></p>
